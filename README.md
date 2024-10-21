@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @SILVERU-GOLDERU
 - 👀 I’m interested in you
 - 🌱 I’m currently learning life
-- 💞️ I’m looking to collaborate on top of you
+- 💞️ I’m looking to collaborate on you?
 - 📫 How to reach my heart
-- 😄 Pronouns: silver/king
+- 😄 Pronouns: the/king
 - ⚡ Fun fact: I forgot
 
 <!---

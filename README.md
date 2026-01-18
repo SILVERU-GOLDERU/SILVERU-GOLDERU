@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning life
 - 💞️ I’m looking for love
 - 📫 How to reach my heart
-- 😄 Pronouns: the/king
 - ⚡ Fun fact: I forgot
 
 <!---
